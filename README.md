@@ -1,1 +1,1 @@
-# TheGreateCook
+# TheGreatCook
